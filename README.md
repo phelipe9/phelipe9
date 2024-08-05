@@ -9,3 +9,7 @@ Ola seja bem vindo ao meu perfil 🤙
 ### Voce pode entrar em contato comigo📧
 
 alurastartestudantes@email.com
+
+
+![](https://tenor.com/pt-BR/search/gojo-gifs)
+
